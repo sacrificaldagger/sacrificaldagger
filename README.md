@@ -3,5 +3,5 @@ Greetings dear reader! The name of this one is Twice or Timey. (Any other Two Ti
 **Azure #1 fan (in my head)** 
 Many of my friends know me for being very enthusiastic about Azurewrath, which I am! This one LOVES talking about Azure! 
 I also am fixated on Azuretime and I adore saying random fun facts about the ship! ^_^
-
+I'm bad at starting and holding conversations when we aren't friends... so sorry for that if that makes it awkward!
 More to come...
