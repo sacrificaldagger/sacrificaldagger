@@ -5,7 +5,7 @@ Many of my friends know me for being very enthusiastic about Azurewrath, which I
 I also am fixated on Azuretime and I adore saying random fun facts about the ship! ^_^
 
 
-I'm bad at starting and holding conversations when we aren't friends... so sorry if that makes it awkward! I also go silent when somebody mentions anything what makes me uncomfy (examples: $3lF h4Rm, $ü1c1d3)
+I'm bad at starting and holding conversations when we aren't friends... so sorry if that makes it awkward! I also go silent when somebody mentions anything what makes me uncomfy (examples: $ 3lF h4Rm, $ ü1c1d3)
 
 
 More to come...
