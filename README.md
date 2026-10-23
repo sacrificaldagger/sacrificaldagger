@@ -1,11 +1,1 @@
-# THIS IS A WIP! GOING TO MAKE IT MORE PRETTY!!
-Greetings dear reader! The name of this one is Twice or Timey. (Any other Two Time nicknames are very welcome!) I go by they/spawn pronouns.
-**Azure #1 fan (in my head)** 
-Many of my friends know me for being very enthusiastic about Azurewrath, which I am! This one LOVES talking about Azure! 
-I also am fixated on Azuretime and I adore saying random fun facts about the ship! ^_^
-
-
-I'm bad at starting and holding conversations when we aren't friends... so sorry if that makes it awkward! I also go silent when somebody mentions anything what makes me uncomfy (examples: $ 3lF h4Rm, $ ü1c1d3)
-
-
-More to come...
+bleh
